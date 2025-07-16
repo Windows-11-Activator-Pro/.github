@@ -1,4 +1,4 @@
-# Windows 11 Activator KMS Pro 2025
+# Windows 11 Activator Pro
 It's a familiar situation: people looking for a trustworthy Windows 11 activator, or just wanting to double-check that their Windows is activated. Many, many users have this experience. It's a common problem, and such hurdles can readily trigger frustration, and lead to difficulties in activating Windows 11.
 
 <img width="438" height="44" alt="2" src="https://github.com/user-attachments/assets/edee168a-9b40-4536-b447-7659398128ce" />
